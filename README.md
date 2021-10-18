@@ -1,1 +1,1 @@
-# kamau-college
+# kamau-business college
